@@ -12,7 +12,7 @@
 
 <sup>These Are My Oomfs, You should follow them and their friends :) </sup>
 
-<sup>[dirk](https://github.com/dirkskatana)　[toki](https://github.com/Orcapaint)　[kian](https://github.com/ibispaintarchive)　[cas](https://github.com/charming-xiamao)　[angel](https://github.com/angel0fsloth)　[santos](https://github.com/vernotstappen)</sup>
+<sup>[dirk](https://github.com/dirkskatana)　[toki](https://github.com/Orcapaint)　[kian](https://github.com/ibispaintarchive)　[cas](https://github.com/charming-xiamao)　[angel](https://github.com/angel0fsloth)</sup>
 
 
 <br ><br> <br> <br> <br ><br> 
